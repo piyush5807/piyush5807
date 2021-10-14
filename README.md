@@ -7,5 +7,5 @@
 - 💬 Ask me about literally anything
 - 📫 How to reach me: https://www.linkedin.com/in/piyush-aggarwal-960a81100/
 - ⚡ Fun fact: I teach and learn at the same time :p 
-- I read some articles here - https://piyush5807.medium.com/
+- 💬 I write some articles here - https://piyush5807.medium.com/
 
